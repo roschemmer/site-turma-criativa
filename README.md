@@ -9,6 +9,8 @@ aula 2
 
 Além disso, o estudo nos permite fazer contribuições significativas para o mundo ao nosso redor. Ao dominar novas habilidades e adquirir conhecimentos especializados, podemos encontrar soluções inovadoras para os problemas que enfrentamos como sociedade e fazer nossa parte para criar um futuro melhor para todos. 
 
-Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado contínuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida de maneiras inimagináveis
+Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado contínuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida de maneiras inimagináveis.
+
+ $\sqrt{3x-1}+(1+x)^2$
 
 ![](https://media1.tenor.com/m/IrIItfk0NLAAAAAC/student-stude.gif)
