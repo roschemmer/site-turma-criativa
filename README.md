@@ -14,3 +14,8 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significativame
  $\sqrt{3x-1}+(1+x)^2$
 
 ![](https://media1.tenor.com/m/IrIItfk0NLAAAAAC/student-stude.gif)
+![](https://media.tenor.com/mkyTkSfGvFEAAAAM/cool-fun.gif)
+
+
+
+
