@@ -17,5 +17,8 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significativame
 ![](https://media.tenor.com/mkyTkSfGvFEAAAAM/cool-fun.gif)
 
 
+![](https://media.tenor.com/nedd-syRRKsAAAAM/eid.gif)
+
+
 
 
